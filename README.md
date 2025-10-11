@@ -39,8 +39,8 @@ Check out some of my beginner projects:
 
 ## 📫 Connect with Me
 - 💬 Feel free to reach out if you want to collaborate or share ideas!
-- 📧 Email: *(optional)*  
-- 🧩 Discord: *(optional)*
+- 📧 Email: *(comming soon)*  
+- 🧩 Discord: *(comming soon)*
 
 ---
 
